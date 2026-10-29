@@ -1,0 +1,2 @@
+# project-NOVA
+AI POWERD SMART CAMPUS
